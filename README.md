@@ -15,4 +15,6 @@
 
 *"Building Application with Peace & Love"*
 
+*Feel free to contact*
+
 </div>
