@@ -13,8 +13,6 @@
 
 *"Think in systems, ship with taste."*
 
-*"Building Application with Peace & Love"*
-
-*Feel free to contact*
+*"Building Application with Love"*
 
 </div>
